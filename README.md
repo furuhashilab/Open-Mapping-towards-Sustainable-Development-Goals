@@ -1,1 +1,1 @@
-# Open-Mapping-towards-Sustainable-Development-Goals
+# Open Mapping towards Sustainable Development Goals和訳
